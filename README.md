@@ -1,0 +1,1 @@
+# Foresight's Notes
